@@ -10,6 +10,8 @@ i'm an INFP personality type if ur for whatever reason THAT curious :skull:
 
 ![real](https://files.catbox.moe/3lecj0.JPG)
 
+<video><source src="https://files.catbox.moe/ujvodq.mp4" type="video/mp4">d</video>
+
 <!--
 **rmfandyplayz/rmfandyplayz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
