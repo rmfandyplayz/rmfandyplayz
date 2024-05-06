@@ -1,4 +1,4 @@
-### halo
+# halo
 uhh
 
 i like playing games and messing around with Unity Engine. been doing so since 5th grade
