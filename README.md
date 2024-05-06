@@ -1,7 +1,7 @@
 # halo
 uhh
 
-i like playing games and messing around with Unity Engine. been doing so since 5th grade
+i like playing games and messing around with Unity Engine. been doing so since 5th grade\
 i did make some cool thingies - check them out on [my website](https://toewrlefence.com)
 
 feel free to DM me for any purpose on Discord (linked on my website)
