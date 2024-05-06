@@ -1,4 +1,10 @@
-### Hi there 👋
+### halo
+uhh
+
+i like playing games and messing around with Unity Engine. been doing so since 5th grade
+i did make some cool thingies - check them out on my website
+
+feel free to DM me for any purpose on Discord
 
 <!--
 **rmfandyplayz/rmfandyplayz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
