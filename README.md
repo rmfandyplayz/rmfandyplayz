@@ -6,7 +6,7 @@ i did make some cool thingies - check them out on [my website](https://toewrlefe
 
 feel free to DM me for any purpose on Discord (linked on my website)
 
-i'm an INFP personality type if ur for whatever reason THAT curious :skull:
+he/him and INFP if ur that curious for whatever reason :skull:
 
 [![click for funny](https://files.catbox.moe/3lecj0.JPG)](https://files.catbox.moe/ujvodq.mp4)
 
