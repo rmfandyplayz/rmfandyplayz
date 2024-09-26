@@ -1,12 +1,12 @@
 # halo
 uhh
 
-i like playing games and messing around with Unity Engine. been doing so since 5th grade\
+i like playing games and creating games. been doing so since 5th grade\
 i did make some cool thingies - check them out on [my website](https://rmfandyplayz.com)
 
 feel free to DM me for any purpose on Discord (linked on my website)
 
-he/him and INFP if ur that curious for whatever reason :skull:
+he/him | INFP
 
 [![click for funny](https://files.catbox.moe/3lecj0.JPG)](https://files.catbox.moe/ujvodq.mp4)
 
