@@ -2,7 +2,7 @@
 uhh
 
 i play and make gaem\
-i did make some cool thingies - check them out on [my website](https://rmfandyplayz.com)
+i made some cool thingies - check them out on [my website](https://rmfandyplayz.com)
 
 INTJ - A
 🇺🇸 **en** / 🇨🇳 zh
