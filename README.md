@@ -1,5 +1,4 @@
-i play and make game\
-i like to design and code user interface\
+i is a design and codeth the user interface for video game\
 i made stuff - check them out on [my website](https://rmfandyplayz.com/projects)
 
 INTJ - A\
